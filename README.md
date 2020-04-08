@@ -1,2 +1,4 @@
 # kudos
-GitHub Pages
+KUDOS DESIGN TEMPLATE
+# THIS PAGE IS NOT AVAILABLE FOR REVIEW 
+# by Victor 
